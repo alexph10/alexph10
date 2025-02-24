@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alexph10
 - 👀 I’m interested in Coding, Video Games, and Coding
-- 🌱 I’m currently learning Pythong
+- 🌱 I’m currently learning AI engineering and full-stack
 - 💞️ I’m looking to collaborate on Anything that'll better my coding knowledge
 - 📫 How to reach me pnhcan1@gmail.com
 - 😄 Pronouns: he/him
