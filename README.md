@@ -13,4 +13,3 @@
 
 #### sorry for the mess, youve come so far
 
-#### you are loved. work hard play harder
