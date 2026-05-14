@@ -1,4 +1,4 @@
-#### ♩  ♪  ♯♬ ♫ ♬ github github github github github github ^__^ github github github github github github ♩  ♪  ♯♬ ♫ ♬
+#### ♩  ♪  ♯♬ ♫ ♬ github github github github github github github github github github github github ♩  ♪  ♯♬ ♫ ♬
 
 
 <video src="https://github.com/user-attachments/assets/8ebe23a5-8732-478f-bef7-d83d5bd9b989" autoplay loop muted playsinline controls width="100%"></video>
@@ -10,7 +10,5 @@
 
 
 #### ♬♩ ♪  ♯♬                                                         ♫  ♬♩ ♪ ♯♬ ♫ ♬♩ ♪ ♯♬ ♫ ♬♩ ♪                ♯♬  ♫ ♬♩ ♪ ♯            ♬ ♫ ♬♩    ♪  ♯♬ ♫     ♬♩ ♪  ♯♬  ♫          ♬  
-
-#### You can ♪ ♯♬ ♫ ♬♩ ♪ ♯♬ ♫ me at the ♪ ♯♬ ♫  of your ♪ ♯♬ ♫ ♬♩   ♪ ♯♬      ♫♪           ♯♬ ♫ ill always be there 
   
 
