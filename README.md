@@ -1,4 +1,2 @@
 
-
-<img width="570" height="320" alt="05301-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/9cde4366-4d5d-4a27-b426-31eeeef45802" />
-
+<img width="640" height="360" alt="CryPlaysTheCatLadyP4-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/23bfef16-1cc0-41e3-a74b-d2ddbd7c35d9" />
